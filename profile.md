@@ -1,2 +1,2 @@
-# Name :
-# Sex : 
+# Name : eunjin kang
+# Sex : female
